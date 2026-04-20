@@ -1,3 +1,4 @@
+Neo Motloung ST10538987 GROUP4 
 1. Organization Overview
 Name: Sweet Crumbs Bakery
 Sweet Crumbs Bakery is a small local business that specializes in freshly baked goods such as cakes, pastries, and breads. The bakery was established to serve the local community with high-quality, freshly made products using traditional baking methods. Over time, it has gained popularity through word-of-mouth and a loyal customer base.
